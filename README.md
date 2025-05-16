@@ -67,3 +67,22 @@ CERITICATE OF PAPER PUBLISHED
 
 ![e- Certificate IJSREM 4Gangadhar V Gudimath](https://github.com/user-attachments/assets/724c8a82-44b9-4874-b001-0ce14f6fbda9)
 
+
+
+👨‍💻 Team Members
+Your Name – GANGADHAR V GUDIMATH
+
+
+
+📬 Contact
+For queries or contributions, contact:
+📧 gangadharvgudimath@gmail.com
+📱 +91-9343813155
+
+⭐ Acknowledgements
+Name of University
+[PRESIDENCY UNIVERSITY]
+
+
+
+
