@@ -60,3 +60,10 @@ Deployment
 
 Localhost / Cloud (Heroku, AWS, etc.)
 
+
+
+
+CERITICATE OF PAPER PUBLISHED 
+
+![e- Certificate IJSREM 4Gangadhar V Gudimath](https://github.com/user-attachments/assets/724c8a82-44b9-4874-b001-0ce14f6fbda9)
+
